@@ -8,4 +8,4 @@ After a free consulation, I charge a flat rate of $20 for 1 1/2 hours, and then 
 
 ## Getting the service
 
-Contact me at ethan.hargunani@outlook.com or by text at (503)348-3480 and I will get back to you as soon as possible!
+Contact me at ethan.hargunani@outlook.com or by text at (503)348-3480 and I will get back to you as soon as possible! I will not be avaible from July 24th to August 24th.
